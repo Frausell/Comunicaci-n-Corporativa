@@ -1,1 +1,1 @@
-# Comunicaci-n-Corporativa
+# Comunicacion-Corporativa
